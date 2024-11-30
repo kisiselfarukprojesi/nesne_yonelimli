@@ -1,0 +1,1 @@
+# nesne_yonelimli
